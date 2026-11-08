@@ -1,2 +1,0 @@
-# Happy-diwali-
-Happy diwali 
